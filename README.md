@@ -48,11 +48,11 @@ If you have any questions, or inquiries, or would like to get in touch with us r
 
 </div>
 
-We value your feedback and are eager to assist you on your journey to modernizing and enhancing your farming practices with AgriDoot.
+We value your feedback and are eager to assist you on your journey to modernizing and enhancing your farming practices.
 
 For partnership inquiries, technical support, or any other matter, don't hesitate to reach out. Your success in agriculture is our priority.
 
-Thank you for choosing AgriDoot - Where Tradition Meets Innovation in Agriculture.
+Thank you for choosing us - Where Tradition Meets Innovation in Agriculture.
 
 <div align="center">
 
